@@ -3,3 +3,8 @@ i am chitti the robo
 speed 1 terrahud
 aaass
 suuus
+agg7gub
+jnyvbnb
+muyugcvbn
+dfgbnm
+
